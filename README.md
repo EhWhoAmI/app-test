@@ -12,3 +12,4 @@ yujfkafsdasdfdsffsadsafdsfafdsaksfkdss
 EversadsaasdfasfasassadfasheassafasfdasfasfsafdasfsafdasdfadsfasfsadfasdfasfdasfdasfdaasfdfdsasfdsadfasfdouIt works, I thinksafasfShow michaelasfdfsaasdfsaffsaasasfdfsadsafdsaf
 asjfdhkjsfdadsffdsaafdss
 I wanted someone strong who could protect me
+I let his anger fester and infect me
